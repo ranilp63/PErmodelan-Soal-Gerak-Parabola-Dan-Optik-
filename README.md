@@ -1,1 +1,1 @@
-# PErmodelan-Soal-Gerak-Parabola-Dan-Optik-
+# Permodelan-Soal-Gerak-Parabola-Dan-Optik-
